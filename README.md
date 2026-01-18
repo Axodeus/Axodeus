@@ -7,7 +7,7 @@
 
 ***Axo / Ludwig / Lotariusz*** ✕ ***he/him***
 
-*PROJECT L.L.B. creator* 
+*PROJECT ATTEMPT creator* 
 
 
 
